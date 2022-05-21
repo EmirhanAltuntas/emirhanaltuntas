@@ -1,1 +1,1 @@
-### Hi 👋 I'm Emirhan
+### Hi, i'm Emirhan 👋 
